@@ -1,2 +1,2 @@
-# Freefire-style-name
-Freefire name
+# Freefire-free diamond
+Freefire diamond💎
